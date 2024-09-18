@@ -1,1 +1,0 @@
-# shanewazkhan.github.io
